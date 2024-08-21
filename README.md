@@ -1,2 +1,2 @@
 # About Marchilyn
-Loving, Caring, Maldita
+Maldita
